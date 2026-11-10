@@ -217,4 +217,4 @@ TrackMania Nations Forever is provided as a full free version, granting players 
 Ready to hit the tracks? Download TrackMania Nations Forever today and unleash your inner racer!
 
 ---
-**Last updated:** 2026-11-10 01:52:49 UTC
+**Last updated:** 2026-11-10 09:14:52 UTC
